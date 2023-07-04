@@ -1,1 +1,1 @@
-I was updated on the web
+I was updated
